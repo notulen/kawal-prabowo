@@ -1,0 +1,2 @@
+- Referensi:
+	- https://www.setneg.go.id/baca/index/presiden_prabowo_lantik_para_menteri_kabinet_merah_putih_di_istana_negara
